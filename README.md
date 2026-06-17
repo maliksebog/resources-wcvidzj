@@ -8,7 +8,6 @@
 - https://sites.google.com/view/rs9yzrktl5zei3e5tm
 - https://sites.google.com/view/kn62oyebylkiswmcez
 - https://sites.google.com/view/ypnjratxzvxv32uwcr
-- http://c.kfmail.top/c/resources-wcvidzj
 - https://sites.google.com/view/cm1zmatox1kav82yle
 - https://sites.google.com/view/f3woxngm7g2mthcsdu
 - https://sites.google.com/view/s7f2zvu7fu0c7y2g8c
@@ -46,7 +45,6 @@
 - https://sites.google.com/view/lcr71qwh3litdxvdrk
 - https://sites.google.com/view/secmvfqz58h98t3kdm
 - https://sites.google.com/view/eyfkfhl8laaleruwyx
-- http://c.kfmail.top/c/resources-wcvidzj
 - https://sites.google.com/view/g03oxakzhxskgcnqrc
 - https://sites.google.com/view/szjoee4bfhdnpdxnvq
 - https://sites.google.com/view/v17awtrh7witsb2pot
@@ -143,6 +141,7 @@
 - https://sites.google.com/view/n2v7urxvhbpgyevdqs
 - https://sites.google.com/view/oekqiu875kh5iovjuw
 - https://sites.google.com/view/j3zqrczequjsxxlha2
+- http://43.133.171.72/c/resources-wcvidzj
 - https://sites.google.com/view/o2xb0rb96mg8u9tp05
 - https://sites.google.com/view/law0cbncb0ds5o2m6z
 - https://sites.google.com/view/mzjbp9c80rlpcwkibs
@@ -185,6 +184,7 @@
 - https://sites.google.com/view/p0swzx26pb5eusw16c
 - https://sites.google.com/view/xsoxn7ltgvxgybptlp
 - https://sites.google.com/view/ongo5ecxqldpuspsc9
+- http://43.133.171.72/c/resources-wcvidzj
 - https://sites.google.com/view/kh9y797t7uwgg5e8wh
 - https://sites.google.com/view/pzdokqlwtsin0en8g3
 - https://sites.google.com/view/f9gihxv6gcfnuz0ld0
@@ -216,6 +216,7 @@
 - https://sites.google.com/view/o6yvvdwzggjf3iguu1
 - https://sites.google.com/view/fd8ulmm85rzzysp3pi
 - https://sites.google.com/view/nxffc5quaw0x7um9ej
+- http://43.133.171.72/c/resources-wcvidzj
 - https://sites.google.com/view/t0j8ubiy53m94u8asz
 - https://sites.google.com/view/qmotzfm9wk13stj81b
 - https://sites.google.com/view/xlxpuuxfo2x4uv7r52
@@ -252,7 +253,6 @@
 - https://sites.google.com/view/iz7wz67pvrl1f3ymxz
 - https://sites.google.com/view/uy3w8nbzxten45qipt
 - https://sites.google.com/view/letqwq8rdfolsytoxv
-- http://c.kfmail.top/c/resources-wcvidzj
 - https://sites.google.com/view/epnwsc91ev9jtetifp
 - https://sites.google.com/view/a7ue1prgd0vooohdfi
 - https://sites.google.com/view/c2rabg0swpyjlbjznw
